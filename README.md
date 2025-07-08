@@ -1,6 +1,6 @@
 ![Profile Banner](https://media.licdn.com/dms/image/v2/D4D03AQG6T2Y4yDJvrg/profile-displayphoto-shrink_400_400/profile-displayphoto-shrink_400_400/0/1723300691287?e=1757548800&v=beta&t=-fuDOLYpUr9v_IYdEtvB3RCGFD_nmAyisHtKBbpI-lA)
 
-# Hi! I’m ShardyPL 👋
+# Hi! I’m Hubert 👋
 
 ## O mnie
 
